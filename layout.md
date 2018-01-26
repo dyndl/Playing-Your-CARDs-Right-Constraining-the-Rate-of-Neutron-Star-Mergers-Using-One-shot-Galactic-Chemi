@@ -4,8 +4,6 @@ abstract.html
 in6e9satdr8.html
 e4a56b3796.html
 bq9ae1nt5jg.html
-4j6ejf60ju8.html
-dtp5mcu6ouo.html
 13191.tex
 figures/1.5_Kipp1
 baf.tex
