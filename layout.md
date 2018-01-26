@@ -3,7 +3,6 @@ abstract.html
 5gmp536ur7.html
 in6e9satdr8.html
 e4a56b3796.html
-bq9ae1nt5jg.html
 13191.tex
 figures/1.5_Kipp1
 baf.tex
