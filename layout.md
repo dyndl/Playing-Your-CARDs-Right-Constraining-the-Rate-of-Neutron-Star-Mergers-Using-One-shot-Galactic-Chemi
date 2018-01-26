@@ -7,8 +7,6 @@ bq9ae1nt5jg.html
 4j6ejf60ju8.html
 dtp5mcu6ouo.html
 567kdj318mo.html
-sfna8bsk888.html
-avr54hutc8g.html
 13191.tex
 figures/1.5_Kipp1
 baf.tex
